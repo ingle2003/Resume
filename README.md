@@ -1,0 +1,1 @@
+I am enthusiastic about vehicle and aircraft assembly with a foundational knowledge of both vehicle and aircraft engines. I am driven by a passion for exploring new technologies and applying them practically. I am keen to contribute as an assistant in technical projects, where I can both learn and innovate, bringing fresh ideas to enhance the work I engage in.
